@@ -13,3 +13,18 @@
 ⚡ Fun fact: 저는 커피를 너무 사랑합니다! 다양한 종류의 커피를 맛보고, 직접 내려 마시는 것을 즐깁니다. ☕
 
 
+----
+
+## 👋 Hello, I'm @yonghwan1106!
+
+👀 I'm a writer, a civil society activist, and an aspiring entrepreneur. I have a keen interest in the UN's Sustainable Development Goals (SDGs) and generative AI. I enjoy exploring and testing how generative AI technology can be applied in the field of SDGs and how it can enrich our lives.
+
+🌱 I'm constantly learning about the latest AI research trends and how to apply them to real-world projects. Although I'm still in the learning process and there's more I don't know than I do, I plan to start a business when I come up with a good idea or item.
+
+💞️ I'm looking for opportunities to collaborate on various projects in the field of artificial intelligence. I'm especially interested in participating in the process of developing creative ideas and turning them into tangible results.
+
+📫 You can reach me at sanoramyun8@gmail.com.
+
+😄 Pronouns: He/him
+
+⚡ Fun fact: I'm a coffee enthusiast! I enjoy tasting different kinds of coffee and brewing my own. ☕ 
