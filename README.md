@@ -15,7 +15,7 @@
 
 ----
 
-## 👋 Hello, I'm @yonghwan1106!
+👋 Hello, I'm @yonghwan1106!
 
 👀 I'm a writer, a civil society activist, and an aspiring entrepreneur. I have a keen interest in the UN's Sustainable Development Goals (SDGs) and generative AI. I enjoy exploring and testing how generative AI technology can be applied in the field of SDGs and how it can enrich our lives.
 
